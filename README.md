@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Laismacieltech
-- 👀 I’m interested in  contratar profissionais pcd
+- 👀 I’m interested in  contratar profissionais pcds 
 - 📫 How to reach me  (11) 9.1108-4403
 - https://www.linkedin.com/in/lais-maciel-martinho-14823a192/
 
